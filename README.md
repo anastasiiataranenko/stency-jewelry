@@ -1,1 +1,1 @@
-# stency-jewelry
+# stency-jewelr
